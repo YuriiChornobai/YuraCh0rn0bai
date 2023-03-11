@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YuraCh0rn0bai
+- 👋 Hi, I’m @YuriiChornobai
 - 👀 I’m interested in investigative journalism.
 - 🌱 I’m currently learning media communications and journalism.
 - 💞️ I’m looking to collaborate on investigative journalism.
